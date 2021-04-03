@@ -14,4 +14,5 @@
 ## 最喜欢的❦ 句子
 1. 无中不能生有，无缝的石头流不出水来。谁不能燃烧，就只有冒烟——这就是定理。生活的烈火万岁。                            ——奥斯特洛夫斯基
 2. 永远不要因承认错误而感到羞耻，因为承认错误也可以解释作你今天更聪敏。——马罗
+3. 余平生所作文章，多在“三上”，乃“马上”，“枕上”，“厕上”也。——欧阳修
 <body style="background-image:url(https://p1.ssl.qhimgs1.com/sdr/400__/t01a28f2fb6da71af91.jpg);background-repeat:no-repeat;background-attachment:fixed;background-size:cover"></body>
